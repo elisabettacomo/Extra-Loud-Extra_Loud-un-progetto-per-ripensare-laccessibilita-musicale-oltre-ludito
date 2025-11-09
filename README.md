@@ -1,1 +1,1 @@
-# Extra-Loud-Extra_Loud-un-progetto-per-ripensare-laccessibilita-musicale-oltre-ludito
+# Extra Loud: un progetto per ripensare l'accessibilita musicale oltre l'udito
